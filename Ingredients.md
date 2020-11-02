@@ -7,6 +7,6 @@
 1 cup (240ml) canola or vegetable oil
 4 large eggs, room temperature and separated
 1 Tablespoon pure vanilla extract
-1 teaspoon distilled white vinegar
+1 teaspoon  white vinegar
 liquid or gel red food coloring
 1 cup (240ml) buttermilk, at room temperature
